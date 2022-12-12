@@ -6,3 +6,5 @@ Do not worry, I will be updating this to be up to date with the current Cookie C
 Credits obviously go Orteil, visit the official website here: http://orteil.dashnet.org/cookieclicker/
 
 <p>Mope you liked it!</p>
+
+Also, the whole entire thing messed up, so just go to my website, http://www.ogcookieclicker.tk/
